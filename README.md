@@ -1,2 +1,4 @@
 # Free-gpt-6
-Lmao get rickrolled
+send this to a friend to rickroll them lmao
+
+say noegis backwards
